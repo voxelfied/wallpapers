@@ -1,1 +1,1 @@
-# Wallpapers for Everforest-themed rices
+# Wallpapers for themed Linux rices
